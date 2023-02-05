@@ -1,1 +1,1 @@
-haker lsq mnie ty przyslal
+haker lsq mnie tu przyslal
